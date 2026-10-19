@@ -1,0 +1,2 @@
+# premium-fig-carv-001-figure-whittling-proportional
+Ever ended up with a figure that looks more like a cartoon than a human? The struggle of translating anatomy into whittling proportions is real. This Notion template delivers a dedicated proportional anatomy reference, so every cut is deliberate and your figures look lifelike.  No more flipping through books or searching online mid-project. This te
